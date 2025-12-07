@@ -1,0 +1,1 @@
+TechFix Solutions is a Zambian-based phone and computer service provider offering fast, reliable, and affordable solutions. We specialize in FRP bypass, flashing, software repairs, computer formatting, Windows installation, typing, printing, and academic assignment writing.
